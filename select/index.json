@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "プラウド・オブ・ユー",
+  "base_artist": "Ne-Yo",
+  "createdAt": "2026-02-07T10:50:47.855869Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Proud of You",
+      "artist": "Ne-Yo",
+      "has_synced": false,
+      "path": "select/pl_01_Proud_of_You_Ne-Yo.txt"
+    }
+  ]
+}
