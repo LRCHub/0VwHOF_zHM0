@@ -1,0 +1,104 @@
+# Ne-Yo – プラウド・オブ・ユー
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I can't be, I can't be nothing
+but proud of you
+So bad, so good at what you do
+So real so true
+I can't do, I can't do nothing
+but love on you
+Wanna kiss you from the rooter
+from the tooter
+So thick so cute
+I don't want,
+I don't want nobody else but you
+No, nothing else ain't gone do
+Just you, just you
+I don't want,
+I don't want nobody else but you
+No, nothing else ain't gone do
+Just you, hey, hey
+You's a highlight, in real life
+Bad in real life
+Filter malfunction
+Picture still right
+Man, shorty kill likes
+Comments ill like
+Shorty bad
+as a mistress,
+but she a real wife
+Ne-Yo live a ill life
+Niggas say that I'm lucky,
+blessed what it feel like
+Ooh I love it, ooh I love it
+Shorty published, but more than
+just a pretty face
+and booty bubbling
+Conversation give you proper
+with discussion
+Ooh I love it, ooh I love it
+Shorty doesn't wait around
+for nothing,
+get it done with no discussion
+Miss independent,
+I been loving you and I
+I can't be, I can't be nothing
+but proud of you
+So bad, so good at what you do
+So real so true
+I can't do, I can't do nothing
+but love on you
+Wanna kiss you from the rooter
+from the tooter
+So thick so cute
+I don't want,
+I don't want nobody else but you
+No, nothing else ain't gone do
+Just you, just you
+I don't want,
+I don't want nobody else but you
+No, nothing else ain't gone do
+Just you, hey, hey
+Few and far between
+Women that ride the way
+you ride, baby, you ride or die
+Women with drive
+matching my drive,
+she wanna drive and I
+Ain't mad at you, Queen
+You wanna lead now and again,
+I got no problem
+Knowing I can give you the wheel
+Baby, it's awesome
+Ooh I love it, ooh I love it
+Shorty published, but more than
+just a pretty face
+and booty bubbling.
+Conversation give you predicate
+and subject
+Ooh I love it, ooh I love it
+Shorty doesn't wait around
+for nothing,
+get it done with no discussion
+Miss independent,
+I been loving you and
+I can't be, I can't be nothing
+but proud of you
+So bad, so good at what you do
+So real so true
+I can't do, I can't do nothing
+but love on you
+Wanna kiss you from the rooter
+from the tooter
+So thick, so cute
+I don't want,
+I don't want nobody else but you
+No, nothing else ain't gone do
+Just you, just you
+I don't want,
+I don't want nobody else but you
+No, nothing else ain't gone do
+Just you, hey, hey
+```
